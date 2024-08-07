@@ -8,5 +8,5 @@ maidin mhaith🤍
 dobro jutro🩷
 buongiorno💚
 
-  👁️ 👁️      👁️ 👁️
-    👅         🫦
+
+  
